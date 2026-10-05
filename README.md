@@ -1,2 +1,8 @@
 # Econometrics
-Group 1085 
+
+Group 1085
+
+
+
+Seminar 1 ->Basics
+
